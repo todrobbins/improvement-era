@@ -1,6 +1,6 @@
 Extracted from [“Died in Service,” _The Improvement Era_ Vol. 22, No. 3 (January 1919): 234-240](https://archive.org/stream/improvementera2203unse#page/234/mode/2up)
 
-#Died in Service
+# Died in Service
 
     “Loose me from fear, and make me see aright
     How each has back what once he stayed to weep——
