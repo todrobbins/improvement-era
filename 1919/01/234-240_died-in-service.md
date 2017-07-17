@@ -2,9 +2,9 @@ Extracted from [“Died in Service,” _The Improvement Era_ Vol. 22, No. 3 (Jan
 
 # Died in Service
 
-    “Loose me from fear, and make me see aright
-    How each has back what once he stayed to weep——
-    Homer his sight, David his little lad.”
+>“Loose me from fear, and make me see aright
+ How each has back what once he stayed to weep——
+ Homer his sight, David his little lad.”
 
 **John D. Borden**, Hazelton, Idaho, was reported killed in action.
 
@@ -129,6 +129,6 @@ sisters. Funeral services were held in Wellsville, Utah, Sunday, November 17, 19
 
 **Private Roni C. Ahlquist**, son of Mr. and Mrs. Carl A. Ahlquist, of Sugar House ward, Salt Lake City, died October 4, 1918, from wounds received in action while fighting in France. He was the only son in the family, and was born November 13, 1886, in Salt Lake City. He left home with drafted men. October 3, 1917, for Camp Lewis, was then sent to Long Island, and left for France about December 12. 1917. In his last letter he told of going over the top three times in different sectors, but said nothing of being wounded. His last letter was dated August 29, 1918. He is survived by his parents and three sisters. He filled a mission to Sweden, where he labored in the Stockholm conference.
 
-**Captain James B. Austin**, son of Mrs. E. 0. Howard, Salt Lake City, died in France, October 9 or 10, from wounds received in battle while leading his company to victory. He was a member of General Dickman’s Company, 38th Regiment, Third Division Infantry. Was born in Kansas City, Missouri, 32 years ago, received his early education in Salt Lake City, attended the second officers training camp at Fort Sheridan, Illinois, and on leaving camp, one year ago, was commissioned First Lieutenant. He was sent to Camp Greene, N. C., where he remained during the winter of 1917-18, and in March, 1918, was ordered over-seas. He won his commission as Captain while in active duty. He is survived by his wife and two children, now in Omaha.
+**Captain James B. Austin**, son of Mrs. E. O. Howard, Salt Lake City, died in France, October 9 or 10, from wounds received in battle while leading his company to victory. He was a member of General Dickman’s Company, 38th Regiment, Third Division Infantry. Was born in Kansas City, Missouri, 32 years ago, received his early education in Salt Lake City, attended the second officers training camp at Fort Sheridan, Illinois, and on leaving camp, one year ago, was commissioned First Lieutenant. He was sent to Camp Greene, N. C., where he remained during the winter of 1917-18, and in March, 1918, was ordered over-seas. He won his commission as Captain while in active duty. He is survived by his wife and two children, now in Omaha.
 
 **Captain Parley R. Christensen**, son of the late Mr. and Mrs. <a href="http://mormonbiography.org/index.php?title=Carl_Christian_Anton_Christensen_(1831-1912)">C. C. A. Christensen</a>, of Ephraim, Utah, was killed in action, in France, October 13, 1918. He was a member of the 325th Infantry. He enJisted in Battery A of the Utah Artillery, 1898; went to the Philippines, where he saw service against the Spaniards, returning, in 1899; served a three years’ enlistment with the hospital corps; enlisted for the third time, and was in the service on the Arizona-Mexico border with the 13th Infantry; later was an instructor in the Georgia Military Academy, and was promoted to a captaincy when the war started with Germany, being assigned to the 324th Infantry, National Army; here he trained at Camp Jordon, Georgia, until April, 1918, when his regiment embarked for France.
